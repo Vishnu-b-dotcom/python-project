@@ -1,1 +1,1 @@
-Hi , I am to this Platform
+Hi , I am new to this Platform
